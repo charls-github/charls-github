@@ -1,7 +1,7 @@
 - 👋 Hi, I’m  Charls Nelson!!
-- 👀 I’m interested in development
+- 👀 I’m interested in WEB development!
 - 🌱 I’m currently learning the DEVELOPMENT environment
-- 💞️ I’m looking to collaborate on big organisations...
+- 💞️ I’m looking to collaborate on big PROJECTS AT Big Organisations!
 - 📫 you can contact me by mail.... 
 - ⚡ Fun fact: iam beginner!!
 
